@@ -1,2 +1,0 @@
-# aurorasilvax.github.io
- 
